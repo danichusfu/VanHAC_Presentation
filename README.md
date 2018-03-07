@@ -2,7 +2,7 @@
 
 gifs not currently available in PDF. Youtube Links provided instead
 
-Immediate Regroup:
+Immediate Regroup (Statrts at 28 seconds):
 https://youtu.be/oClhdSrPXm0?t=18
 
 Full Regroup:
