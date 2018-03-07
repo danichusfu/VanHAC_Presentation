@@ -1,4 +1,4 @@
-#VanHAC Presentation Slides March 4th 2018
+# VanHAC Presentation Slides March 4th 2018
 
 gifs not currently available in PDF. Youtube Links provided instead
 
