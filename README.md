@@ -2,10 +2,10 @@
 
 gifs not currently available in PDF. Youtube Links provided instead
 
-Immediate Regroup (Statrts at 28 seconds):
+Immediate Regroup GIF (Starts at 28 seconds):
 https://youtu.be/oClhdSrPXm0?t=18
 
-Full Regroup:
+Full Regroup GIF:
 https://www.youtube.com/watch?time_continue=16&v=9zKCZYGov2c
 
 Video of our Presentation:
